@@ -148,4 +148,11 @@ Email: lananh.2402.nt@gmail.com.
 © 2025 AIoTLab, Faculty of Information Technology, DaiNam University. All rights reserved.
 
 ---
+## Thông tin liên hệ  
+Họ tên: Hoàng Công Sơn.  
+Lớp: CNTT 16-03.  
+Email: hoangcongson19092004@gmail.com.
+
+© 2025 AIoTLab, Faculty of Information Technology, DaiNam University. All rights reserved.
+
 
